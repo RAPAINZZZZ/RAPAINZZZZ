@@ -1,1 +1,1 @@
-![imagem](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRHt_xwjlNIH8xa2fhq5mOEb_OS_DdCoTkYIw&usqp=CAU)
+![imagem](https://pt.picmix.com/pic/download?picId=10038946&key=625da)
